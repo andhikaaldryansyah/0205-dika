@@ -1,4 +1,5 @@
-commit 1
+G231180205 - ANDHIKA ALDRYANSYAH - USM
 
-ANDHIKA ALDRYANSYAH
-G.231.18.0205
+Universitas Semarang
+
+JL.Soekarno-Hatta, Tlogosari Kulon
